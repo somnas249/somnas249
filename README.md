@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **somnasgunawardana24@gmail.com**
 
-- ⚡ Fun fact **Call me as somnas**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
